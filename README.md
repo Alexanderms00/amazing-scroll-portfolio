@@ -1,2 +1,2 @@
 # amazing-scroll-portfolio
-https://alexanderms00.github.io/amazing-scroll-portfolio/
+https://Vladislavms2002.github.io/amazing-scroll-portfolio/
